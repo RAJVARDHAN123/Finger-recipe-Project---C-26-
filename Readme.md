@@ -51,3 +51,6 @@ Step 3>>> Prepare the dough for the Samosa Now, to prepare the dough, take a mix
 Step 4>>> Roll the dough in small puris and cut into half Once done, roll out few small-sized balls from the dough. Flatten them further with the help of your palms and then with a rolling pin. Give them a round shape and cut in half. Now dip your hands in water, fold the edges of the semi-circle in order to give it a cone shape.
 
 Step 5>>> Fill the semi-circle with potato filling and deep fry Take the filling with the help of a spoon and stuff it in the cone. Seal the ends properly by pressing the edges lightly with your fingers. Then, heat oil in a pan and deep fry the samosas on low heat until they turn golden brown and crispy. Serve with tomato ketchup and green chutney. Enjoy it as a tea-time snack!
+
+Tips:-
+
